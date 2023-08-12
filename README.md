@@ -1,3 +1,3 @@
 # Tableau
 
-My Tableau Public  >>> Proflie https://public.tableau.com/app/profile/imthira.anantharangsan
+My Tableau Public Profile >>>  https://public.tableau.com/app/profile/imthira.anantharangsan
